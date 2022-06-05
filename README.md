@@ -1,2 +1,1 @@
-# Sample-Repository
-A Sample Repository!
+# A BEAUTIFUL PLACE TO LIVE
